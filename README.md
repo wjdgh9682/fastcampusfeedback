@@ -11,4 +11,4 @@
 
 ![KakaoTalk_20241210_004247789](https://github.com/user-attachments/assets/f9628e0f-fedc-43e3-99ba-1f3bc23a8e40)
 
-![Uploading KakaoTalk_20241210_004247789_01.jpg…]()
+![KakaoTalk_20241210_004247789_01](https://github.com/user-attachments/assets/98f5437a-13c7-47e7-9f69-9a4bc9d3bc1a)
